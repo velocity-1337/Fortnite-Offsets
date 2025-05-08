@@ -3,4 +3,4 @@
 latest fortnite offsets
 
 # Discord
-You can find already updated Fortnite Cheat Sources in my [Discord Server](https://discord.gg/YzpCypQyNw)
+You can find already updated Fortnite Cheat Sources in my [Discord Server](https://discord.gg/Z6dPmJ3H6u)
